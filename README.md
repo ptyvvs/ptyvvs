@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![](https://sun9-26.userapi.com/impg/J9U1_1vT_s8f8oERqx1uXaDMe13pM1zD75wxVw/fHvEng8lyu0.jpg?size=828x831&quality=96&sign=cdfd94532968797387dc0e69a5f492f2&type=album)
+
 <!--
 **ptyvvs/ptyvvs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
